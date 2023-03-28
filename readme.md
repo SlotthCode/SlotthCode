@@ -1,3 +1,5 @@
+<h1 style="font-size:40px;">I HAVE A NEW DISCORD. CHECK https://dose.lol/therapy FOR IT.</h1>
+
 ![carbon (2)](https://user-images.githubusercontent.com/80789840/210128230-5186f7bf-503d-446d-b3b8-b5b58efdfe8e.png)
 
 <h3 align="left">Languages and Tools:</h3>
